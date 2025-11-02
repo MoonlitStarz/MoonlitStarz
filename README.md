@@ -29,4 +29,5 @@
 ![651151a8](https://github.com/user-attachments/assets/02add70b-73e1-4597-bf7d-ed4d533c8cf1)
 
 ・:〃➜ I age regress and go nonverbal quite often. please be patient with me.
+
 ・:〃➜ Check straw and Carrd for more info. if you got this far, whisper me "Self Paced!"
