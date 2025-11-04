@@ -1,4 +1,4 @@
-# About me.
+# About me (Still kinda a wip atm)
 
 ・:〃➜ Pace / Pearl or Amie .
 
