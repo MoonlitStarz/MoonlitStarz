@@ -8,6 +8,7 @@ WIP AGAIN WAAAAAAAAAAAAAAAAA
 　        　౨᭪˳　__17　__   　   bi , tken 𓈒
           
 　          　　　⏝⏝࡛⏝  ིྀ ⏝࡛⏝⏝
-            ৎ୭　straw wip
+            ৎ୭　Pace irl , doubles iwecuf 𓈒
             
-        ₍ᐢ._.ᐢ₎♡  　Pace irl  𓈒
+  <img width="500" height="144" alt="2799209_14fd5__fliter--blackCurrant-and-mint__channel--blue__mode--multiply" src="https://github.com/user-attachments/assets/37bceead-632b-4d78-8ee9-a66cbc786155" />
+
