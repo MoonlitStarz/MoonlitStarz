@@ -10,5 +10,6 @@ WIP AGAIN WAAAAAAAAAAAAAAAAA
 　          　　　⏝⏝࡛⏝  ིྀ ⏝࡛⏝⏝
             ৎ୭　Pace irl , doubles iwecuf 𓈒
             
-  <img width="500" height="144" alt="2799209_14fd5__fliter--blackCurrant-and-mint__channel--blue__mode--multiply" src="https://github.com/user-attachments/assets/37bceead-632b-4d78-8ee9-a66cbc786155" />
+  <img width="500" height="144" alt="2799209_14fd5__fliter--blackCurrant-and-mint__channel--blue__mode--multiply" src="https://github.com/user-attachments/assets/37bceead-632b-4d78-8ee9-a66cbc786155" /> <img width="2048" height="2048" alt="Untitled1002_20251116090808__fliter--green-pink-acid__channel--red__mode--darken" src="https://github.com/user-attachments/assets/a04eb903-2467-4419-9d21-b79341290b9a" />
+
 
