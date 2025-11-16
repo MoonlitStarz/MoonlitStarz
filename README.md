@@ -4,7 +4,10 @@ WIP AGAIN WAAAAAAAAAAAAAAAAA
 <img width="2048" height="2048" alt="Untitled1001_20251116085133" src="https://github.com/user-attachments/assets/a9fc84ee-0a4e-4482-bae5-ddfa47f13b54" /> 
 
   ⤷   𓈒  ₒᵣ **Pace , starz , pearl.**  𓂃⏦
+  
 　        　౨᭪˳　__17　__   　   bi , tken 𓈒
+          
 　          　　　⏝⏝࡛⏝  ིྀ ⏝࡛⏝⏝
             ৎ୭　straw wip
-            ₍ᐢ._.ᐢ₎♡  　Pace irl  𓈒
+            
+        ₍ᐢ._.ᐢ₎♡  　Pace irl  𓈒
