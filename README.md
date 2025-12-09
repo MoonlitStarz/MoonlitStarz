@@ -1,6 +1,6 @@
 # HEY , READ MY CARRD BEFORE THIS . https://thepacecollections.carrd.co/#
 
-![Indigo_fake_originals](https://github.com/user-attachments/assets/9ddeafa7-0e6a-4ded-9365-7e3feee59fc8)
+![el-pendrive-azul-sonic-exe-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/00d741b5-b55a-4929-aeae-4d5b37b561cd)
 
   ⤷   𓈒  ₒᵣ **1ND1G0 / P4C3 / Pearl**  𓂃⏦
   
@@ -18,4 +18,7 @@
 
 જ⁀➴ Whisper me to int because i am most times offtab or in party chat . 
 
-જ⁀➴ Check links for more <3
+જ⁀➴ Check links for more <3 
+
+<img width="558" height="551" alt="download" src="https://github.com/user-attachments/assets/7637f1ef-c874-4ebd-9f05-3ef7d51e449c" />
+
